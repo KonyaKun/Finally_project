@@ -1,0 +1,2 @@
+# Finally_project
+Kuandyk
